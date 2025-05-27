@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @semedo-nob
+# 👋 Hi, I’m  NELSON ...@semedo-nob
 
 ## 👨‍💻 About Me
 - 🎓 I’m a passionate software developer and network engineer.
