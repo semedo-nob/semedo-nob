@@ -38,6 +38,7 @@
 ## 📫 How to Reach Me
 - Email: nelsonapidi75@gmail.com
 - GitHub: [semedo-nob](https://github.com/semedo-nob)
+- Linkedn:https://www.linkedin.com/in/nelson-apidi-ba6b51328?
 
 ---
 
